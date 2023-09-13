@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @YahyaviYaser
-- 👀 I’m interested in Currencies
+- 👀 I’m interested in Currencies Pro
 - 🌱 I’m currently learning About Currencies
 - 💞️ I’m looking to collaborate on econimic
 - 📫 How to reach me by my mail
